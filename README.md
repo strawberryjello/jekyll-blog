@@ -1,1 +1,1 @@
-# strawberryjello.github.io
+Copyright 2019 Cristina Elep
